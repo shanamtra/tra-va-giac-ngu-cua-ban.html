@@ -1,8 +1,8 @@
 <div class="post-content">
-<h2><a href="https://shanamtra.tumblr.com/post/178913728404/tr%C3%A0-v%C3%A0-gi%E1%BA%A5c-ng%E1%BB%A7-c%E1%BB%A7a-b%E1%BA%A1n">Trà và lợi ích cho giấc ngủ của bạn</a></h2>
+<h2>Trà và lợi ích cho giấc ngủ của bạn</h2>
 
 <div class="body-text">
-<p>Trà và giấc ngủ của bạn&nbsp;! Điều mà trước nay được cho là những người &quot; có tuổi &quot; mới có thói quen này. Nhưng xã hội càng phát triển,&nbsp;thú vui tao nhã vừa thưởng thức vừa giúp cho tâm hồn thanh tịnh có được giấc ngủ ngon mỗi ngày càng trở lên phổ biến. Vậy lựa chọn hàng đầu cho những <strong><a href="https://github.com/shanamtra/tra-va-giac-ngu-cua-ban.html">l</a><a href="https://shanamtra.tumblr.com/post/178913728404/tr%C3%A0-v%C3%A0-gi%E1%BA%A5c-ng%E1%BB%A7-c%E1%BB%A7a-b%E1%BA%A1n">oại trà giúp ngủ ngon</a> </strong>là trà gì, đó là những loại trà nào. Kính mời bạn đọc cùng tham khảo chi tiết tại bài viết dưới đây</p>
+<p>Trà và giấc ngủ của bạn&nbsp;! Điều mà trước nay được cho là những người &quot; có tuổi &quot; mới có thói quen này. Nhưng xã hội càng phát triển,&nbsp;thú vui tao nhã vừa thưởng thức vừa giúp cho tâm hồn thanh tịnh có được giấc ngủ ngon mỗi ngày càng trở lên phổ biến. Vậy lựa chọn hàng đầu cho những <strong><a href="https://github.com/shanamtra/tra-va-giac-ngu-cua-ban.html/">loại trà giúp ngủ ngon</a> </strong>là trà gì, đó là những loại trà nào. Kính mời bạn đọc cùng tham khảo chi tiết tại bài viết dưới đây</p>
 
 <h2>Trà tâm sen - Trà thanh tịnh từ tâm hồn</h2>
 
